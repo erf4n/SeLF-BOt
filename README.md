@@ -1,4 +1,4 @@
-# [DeCopaje](https://telegram.me/DeCopaje_team)
+# [DeCopaje_team](https://telegram.me/DeCopaje_team)
 
 # [MADE by ERF4N](https://telegram.me/decopaje)
 
